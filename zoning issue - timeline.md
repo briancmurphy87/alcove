@@ -1,17 +1,21 @@
-- 2015
-    - first presented as a 12-story tower,
-    - **last fall**
-        - [[Wicker Park Committee - Preservation and Development Subcomittee]]
-        - **voted 5-0 **against an earlier proposal for the site
-            - citing traffic issues. 
-            - At that time, the proposed building was 12 stories, four fewer than what is now being proposed
+<h1>2015</h1>
+- first presented as a 12-story tower,
+- **last fall**
+    - [[Wicker Park Committee - Preservation and Development Subcomittee]]
+    - **voted 5-0** against an earlier proposal for the site
+        - citing traffic issues. 
+        - At that time, the proposed building was 12 stories, four fewer than what is now being proposed
+
+<h1>2016</h1>
 - [[January 13th, 2016]] - zoning proposal for [[1648 w division st]] introduced
 - [[September 14th, 2016]] - zoning approved
     - [link to record](https://chicago.legistar.com/LegislationDetail.aspx?ID=2548605&GUID=9A439941-E4A6-493B-AAA8-9C285BC66C92&Options=&Search=)
 - [[September 22nd, 2016]] [link to article](https://www.dnainfo.com/chicago/20160922/wicker-park/16-story-135-unit-apartment-tower-pitched-for-divisionashland/) - revised plan for [[1628 W. Division St.]]
     - In [September 2016, the plan was presented as a 16-story, 135-unit building.](https://www.dnainfo.com/chicago/20160922/wicker-park/16-story-135-unit-apartment-tower-pitched-for-divisionashland) 
     - [[Wicker Park Committee - Preservation and Development Subcomittee]]
-        - Members of the Wicker Park Committee’s preservation and development subcommittee have ^^objected to all previous plans because of traffic and density concerns^^
+        - Members of the Wicker Park Committee’s preservation and development subcommittee have objected to all previous plans because of traffic and density concerns
+
+<h1>2018</h1>
 - [[March 1st, 2018]]
     - before Moreno brought the project before the Plan Commission
     - Mosky made a $1,000 donation to Friends of Proco Joe Moreno
