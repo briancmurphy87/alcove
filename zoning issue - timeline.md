@@ -1,0 +1,185 @@
+- 2015
+    - first presented as a 12-story tower,
+    - **last fall**
+        - [[Wicker Park Committee - Preservation and Development Subcomittee]]
+        - **voted 5-0 **against an earlier proposal for the site
+            - citing traffic issues. 
+            - At that time, the proposed building was 12 stories, four fewer than what is now being proposed
+- [[January 13th, 2016]] - zoning proposal for [[1648 w division st]] introduced
+- [[September 14th, 2016]] - zoning approved
+    - [link to record](https://chicago.legistar.com/LegislationDetail.aspx?ID=2548605&GUID=9A439941-E4A6-493B-AAA8-9C285BC66C92&Options=&Search=)
+- [[September 22nd, 2016]] [link to article](https://www.dnainfo.com/chicago/20160922/wicker-park/16-story-135-unit-apartment-tower-pitched-for-divisionashland/) - revised plan for [[1628 W. Division St.]]
+    - In [September 2016, the plan was presented as a 16-story, 135-unit building.](https://www.dnainfo.com/chicago/20160922/wicker-park/16-story-135-unit-apartment-tower-pitched-for-divisionashland) 
+    - [[Wicker Park Committee - Preservation and Development Subcomittee]]
+        - Members of the Wicker Park Committee’s preservation and development subcommittee have ^^objected to all previous plans because of traffic and density concerns^^
+- [[March 1st, 2018]]
+    - before Moreno brought the project before the Plan Commission
+    - Mosky made a $1,000 donation to Friends of Proco Joe Moreno
+    - according t[o online campaign records](https://illinoissunshine.org/search/?term=Robert%20Mosky&table_name=candidates&table_name=committees&table_name=officers&table_name=receipts&table_name=expenditures)
+    - **One month later**
+        - [Committee on Zoning, Landmarks and Building Standards](https://chicago.legistar.com/DepartmentDetail.aspx?ID=13666&GUID=EA45B76F-EA73-4933-965D-86C51DAE3D0B) approved the zoning change
+            - [Committee on Zoning, Landmarks and Building Standards](https://chicago.legistar.com/DepartmentDetail.aspx?ID=13666&GUID=EA45B76F-EA73-4933-965D-86C51DAE3D0B) approved the zoning change
+- [[March 15th, 2018]]
+    - In a vote to gauge community support for the project Tuesday at The Bedford, 
+        - **eight** residents voted in support of the proposal
+        - **nine** residents voted **against it**
+    - [[City Planning Department (City Plan Commission)]]
+        - ^^The tower plan — which would **require a zoning change** — was **approved on Thursday** by members of the **city’s Plan Commission**^^
+    - Next, ^^the project **will be considered** by the ^^
+        - [[City's Committee on Zoning]]
+        - [[Committee on Zoning, Landmarks and Building Standards]]
+        - [[City Council]]
+    - [[Sara Barnes - Mosky’s zoning attorney]]
+        - crowd of about 30
+            - several who spoke in support turned out to not be 1st Ward residents and were disqualified from the hand vote solicited by Valadez
+        - said
+            - ^^that the proposal has been “fully vetted” by the **CTA **over multiple internal meetings^^
+- May 2018
+    - A[t a Wicker Park Bucktown Chamber of Commerce meeting in May](https://blockclubchicago.org/2018/05/25/live-nation-plans-for-lincoln-yards-anger-small-venue-owners%E2%80%8A-%E2%80%8Abut-development-not-a-done-deal-alderman-says/), 
+    - Moreno said the impact of new apartments on the already congested Blue Line CTA trains ^^needs to be analyzed through a **year-long study** before any new projects get started^^
+    - “I [deferred the one on Division](https://medium.com/chicagopipeline/plan-for-third-tallest-tower-in-wicker-park-draws-mixed-reaction-from-neighbors-a2711cea2970) [Street] and told the developer he needs to go back and look at reductions,” Moreno said in May.
+- [[August 3rd, 2018]] - [these renderings presented](https://www.scribd.com/document/386266580/1624-W-Division-Plan-Package-Revised-13-Story-08-03-18)
+    - [[Jim Panella - VP of RDM Companies]]
+        - presented a new rendering of the revised proposed tower
+    - matched the plan’s third iteration [pitched back in March of that year,](https://medium.com/chicagopipeline/plan-for-third-tallest-tower-in-wicker-park-draws-mixed-reaction-from-neighbors-a2711cea2970) but there were more studios and 1-bedroom apartments in the new plan
+    - __**[View Aug. 2018 Renderings Of The Site Here](https://www.scribd.com/document/386266580/1624-W-Division-Plan-Package-Revised-13-Story-08-03-18)**__
+    - [[Paul Dickman]]
+        - told Block Club Chicago neighborhood leaders ^^did not support the revised plan^^
+        - would rather see a smaller or “mid-rise” mixed-use building as high as 7 or 8 stories
+        - it’s still about seven million dollars worth of free zoning and the worst case of unvarnished greed I’ve ever seen,
+- [[August 15th, 2018]]
+    - [[RDM Companies]]s’ controversial 121-unit tower was shown to a small group of people invited to a private meeting at
+        - [[First Ward Ald. Joe Moreno]]’s office Tuesday night
+        - [[Block Club]] was ^^turned away from the meeting^^
+        - along with representatives from [[Vermilion]] Development
+    - [[Paul Dickman]]
+        - told Block Club Chicago neighborhood leaders ^^did not support the revised plan^^
+        - would rather see a smaller or “mid-rise” mixed-use building as high as 7 or 8 stories
+        - it’s still about seven million dollars worth of free zoning and the worst case of unvarnished greed I’ve ever seen,
+    - On Wednesday, [[First Ward Ald. Joe Moreno] ]said he deferred the tower plan 
+        - because of concerns from 
+            - the Wicker Park Committee 
+            - and neighbors along Paulina Street 
+            - (who’d be living near the proposed tower)
+        - [link to article where he says this](https://blockclubchicago.org/2018/05/25/live-nation-plans-for-lincoln-yards-anger-small-venue-owners%E2%80%8A-%E2%80%8Abut-development-not-a-done-deal-alderman-says/)
+- [[January 1st, 2019]]
+    - [[First Ward Ald. Joe Moreno]] (really end of 2018)
+        - told [[Kyle Sneed - President of the Wicker Park Committee]]
+            - planned to put the project on hold due to concerns from the Wicker Park Committee and neighbors along Paulina Street
+    - [[Raymond Valadez]]
+        - confirmed in an email to Sneed, Tamminga and Dickman that 
+        - ^^the alderman WOULD NOT bring the plan to a full council vote ^^
+            - UNTIL they had a chance to weigh in further
+        - ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FBCM_Home%2FW0R2Wy70ti.png?alt=media&token=c5c96fde-1b3a-4513-9be0-49d220e0d0e5)
+        - “If the property owner decides to still pursue a project at this location, we will communicate with the Wicker Park Committee before it would be brought forth to the City Council for final consideration.”
+- [[January 4th, 2019]] - [[First Ward Ald. Joe Moreno]] falsely reports car missing
+    - allege Moreno falsely claimed both to Chicago police and his insurance agency State Farm that his 2016 Audi A6 had been stolen out of his garage ^^sometime before **Jan. 4, 2019**^^
+    - However, Moreno allegedly ^^turned the vehicle and its keys over **willingly only hours earlier** to a **woman** he had **previously dated**^^
+    - Because of those false statements, 
+        - police listed the vehicle as stolen 
+        - State Farm was prepared to pay out **more than $30,000** for the loss of the vehicle.
+- [[February 4th, 2019]] - police locate the "stolen" vehicle; investigation into moreno begins
+    - before that payment could be made, police located the vehicle in the early morning hours
+    - arrested the female driver found inside
+    - woman identified the owner as [[First Ward Ald. Joe Moreno]]
+- [[February 5th, 2019]]
+    - [[Block Club]] campaign donation analysis is published: 
+        - [[In City’s Hottest Neighborhoods, Aldermen Rake In Campaign Cash From Developers]]
+- [[February 8th, 2019]]
+    - State Rep. Will Guzzardi
+    - Cook County State’s Attorney Kim Foxx
+    - Assessor Fritz Kaegi
+        - three of the area’s most successful progressive politicians 
+        - condemned Moreno’s campaign staff for [including their photographs on mailers without the politicians’ permission](https://blockclubchicago.org/2019/02/08/guzzardi-foxx-kaegi-ald-joe-moreno-used-our-photos-on-his-mailer-without-our-permission/)
+- [[February 19th, 2019]]
+    - a former aide accused Moreno of sexual harassment 
+    - when she told WBEZ the alderman orchestrated a [pay raise “contest” in which staffers were asked to remove their shirts at a bar](https://www.wbez.org/shows/wbez-news/chicago-alderman-told-staff-to-take-off-shirts-for-contest-says-exaide/66b313a9-a6ee-4c9a-a55d-a25f142ab0c5). 
+        - Moreno’s staff claimed the 2014 alleged incident never happened.
+- [[February 26th, 2019]]
+    - [[La Spata Declares Victory Over Proco ‘Joe’ Moreno In 1st Ward Upset]]
+- [[April 10th, 2019]] - zoning approval granted by the full City Council
+    - **One month later**
+        - [[Committee on Zoning, Landmarks and Building Standards]]
+            - [Committee on Zoning, Landmarks and Building Standards](https://chicago.legistar.com/DepartmentDetail.aspx?ID=13666&GUID=EA45B76F-EA73-4933-965D-86C51DAE3D0B) approved the zoning change
+    - But the plan received **approval** from the **full City Council** on April 10 
+        - the final gathering of elected officials who served under former **Mayor Rahm Emanuel**
+            - which included Moreno.
+- [[May 14th, 2019]] - police arrest Moreno for felony insurance fraud
+    - [[Ald. Moreno Charged with Insurance Fraud, Obstruction of Justice]]
+-  [[May 16th, 2019]]
+    - [[Ald. Moreno Hit With Defamation Lawsuit Following Criminal Charges]]
+        - Hrabar and Gallagher didn’t specify a specific monetary amount, but said they’re seeking more than the **$50,000 jurisdictional minimum through the suit.**
+    - __(a) Initial Fact-finding and Meetings__
+- [[July 9th, 2019]]
+    - Citing Blue Line overcrowding and general congestion, neighbors say former Ald. Joe Moreno (1st) lied to them and pushed a "greedy" development through council.
+    - Now, neighborhood groups are leaning on new Ald. Daniel La Spata (1st) to roll back the zoning change 
+    - Sneed and other Wicker Park Committee board members 
+        - have asked [[First Ward Ald. La Spata]] 
+        - to use his [[aldermanic prerogative]] to **retroactively downzone** the property. 
+        - ^^While **downzoning** is **perfectly legal**^^
+            - ^^**he doesn’t want to do it.**^^
+        - INSTEAD
+            - [[First Ward Ald. La Spata]] said he wants to assess whether 
+                - Moreno’s move to **approve the change on April 10** 
+                - violated the [[Open Meetings Act]].
+    - [[Ald. Scott Waguespack (32nd)]] 
+        - said he did not believe the Open Meetings Act had been violated on April 10.
+        - “[It’s] not applicable, as the meeting was open,” 
+        - ^^“[There’s] **no requirement** to post agenda with each and every item to be voted on in advance.”^^
+        - ^^Waguespack said it’s possible nearby property owners could** have a legal case** that zoning is **“capricious” and harmful to their property values or their quality of life**^^
+            - Increasing crowding on the Blue Line, for example, is a problem, the Bucktown alderman said.
+        - “From our perspective, the problem with high-rise development is that it focuses an area’s ^^development potential on a **single lot to the detriment of** the future development potential of **surrounding lots** and moves away from the **pedestrian-oriented scale** of development that maintains people’s connection to the street^^,”
+- [[August 15th, 2019]] - vermilion begins construction
+    - [[Construction Begins On New Batch Of Million-Dollar Condos, Townhomes On Wicker Park’s Division Street]]
+- [[August 20th, 2019]] - vermilion files suit
+    - [[Big Wicker Park apartment project lands the city in court]]
+    - [[Vermilion]] has protested Moreno’s zoning change
+        - even filing[ a lawsuit](https://www.chicagobusiness.com/commercial-real-estate/big-wicker-park-apartment-project-lands-city-court) against the city to stop it last year. 
+        - The suit alleged the city violated 
+            - the [[Illinois Open Meetings Act]] 
+            - as well as a [[six-month city zoning approval deadline]] 
+        - when Moreno pushed through the zoning change on his way out of office.
+    - __(b) Lawsuits Filed Against City and Alderman La Spata's Downzone Ordinance__
+- [[May 28th, 2020]]
+    - Instead, the freshman alderman tried to 
+        - broker a compromise between property owner Robert Mosky and neighborhood leaders. 
+        - That plan ultimately didn’t work out, La Spata said.
+    - [[First Ward Ald. La Spata]]
+        - introduced an ordinance at City Council
+        - change the zoning of the project to “B-3-2,”
+            - classification that allows retail stores 
+            - but restricts the height to about 50 feet, tall enough for about four stories
+- ## July 2020
+    - I'm confused because **before going under contract** in July 2020 
+        - [[Kerry]] from [[Vermillion]] 
+        - told my agent and me that because of the lawsuit they filed 
+            - (I'm not sure if it was against the city because of the outgoing alderman's approval or the other developer) 
+            - there's no chance it would get zoning approval to be more than 5 stories. 
+            - I think it was was originally planned to be 14 stories now it looks like its 13, 
+                - so is that the "down zoning" that occurred? 
+            - I can't say I'm at all shocked that vermillion didn't disclose anything but am nonetheless disappointed and concerned
+- [[October 15th, 2020]]
+    - staffer [[Nick Zettel]] said the matter was referred to the council’s 
+        - ^^Committee on Zoning, Landmarks and Building Standards^^
+    - Members of the Wicker Park Committee voted ^^11-2 last week^^ 
+        - in favor of advising La Spata to ^^change the property’s zoning.^^
+- [[October 30th, 2020]]
+    - By **October 2020**, 
+        - the 1st Ward Office had communicated this to Wicker Park Committee, and also began communicating this to any residents who called the office.
+        - when any realtor called the 1st Ward Office regarding units for sale anywhere in the 1640 West Division complex, 
+            - ^^that realtor was informed that it would be legal to construct a 17-story building at 1628 West Division ^^
+            - and that it should be assumed that a building would be built on that lot some day.
+    - email from colleen's agent to [[Nick Zettel]]
+        - ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FBCM_Home%2F8wOHq8RSgY.png?alt=media&token=a48b3685-4c25-4f08-89b8-6794aeb9f15c)
+    - response from [[Nick Zettel]] 
+        - ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FBCM_Home%2FLHmsQ9kdZe.png?alt=media&token=8d900f36-3d87-48cd-8372-538b36c865e2)
+    - contradicts his claim that by **October of 2020** they were communicating that it would be built
+- [[December 28th, 2020]]
+    - [[Former Ald. Joe Moreno Charged with Drunken Driving After Gold Coast Crashes]]
+- **spring of 2021**
+    - ^^legal challenges faded^^ and any downzone was not possible
+    - 1st Ward Office had publicly shared updates on 1628 West Division on the zoning website
+- [[July 16th, 2021]]
+    - [[Ex-Ald. Joe Moreno to Avoid Prison After Guilty Plea in 2019 Case]]
+- [[September 2nd, 2022]] - zoning decision that approved plans for building
+- 
